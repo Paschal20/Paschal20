@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about music, religion, simple 3d CAD designing and more
 - 📫 How to reach me: Paschalanaedu69@gmail.com
   
-- ⚡ Fun fact: I'm a passionate Consoler of Christ
+- ⚡ Fun fact: I'm a passionate Consoler of Christ and a Chorister
   
